@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **Narendra.ping@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1xPzQQMEa-tz9nKP7vNdPnrUId5H4wxbqwvS18S1pUS4/edit?usp=sharing](https://docs.google.com/document/d/1xPzQQMEa-tz9nKP7vNdPnrUId5H4wxbqwvS18S1pUS4/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
